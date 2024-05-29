@@ -10,5 +10,5 @@ Meu nome é Salvino
 
 00001094945006sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/giorno-giovanna-jojo-jojos-bizarre-adventures-jjba-anime-gif-16185464)
+![](https://media1.tenor.com/m/JTudmgcE8ZIAAAAd/giorno-giovanna-jojo.gif)
 
